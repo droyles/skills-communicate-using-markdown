@@ -1,4 +1,5 @@
 # My First Day
+![A colorful garden in full sun](https://www.pennington.com/-/media/Project/OneWeb/Pennington/Images/blog/fertilizer/How-to-Have-a-Beautiful-Garden-in-Full-Sun/Colorful-flower-bed-og.jpg?h=630&iar=0&w=1200&hash=A52F8A8BA502C7A69CFDEDF085CEAE2E)
 ## Morning Gratitudes
 ## Things I'm Looking Forward To
 ## Priorities
